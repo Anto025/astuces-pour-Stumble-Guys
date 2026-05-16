@@ -35,4 +35,12 @@
 <h2>Conclusion</h2>
 <p>Ne restez pas à la traîne par rapport aux autres joueurs ! Avec nos <strong>astuces pour Stumble Guys</strong>, vous pouvez obtenir <strong>des gemmes et des jetons gratuits</strong> en quelques étapes simples. Un simple clic suffit pour transformer radicalement votre expérience de jeu et dominer les arènes les plus compétitives. Qu'attendez-vous ? Téléchargez dès maintenant nos astuces gratuites et amenez votre personnage au niveau supérieur !</p>
 
-## 🫵🫵 [TÉLÉCHARGEZ LES ASTUCES STUMBLE GUYS](https://shr.pn/Anto025) 🫵🫵
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/Anto025">
+🫵🫵 CLIQUEZ ICI POUR TÉLÉCHARGER LES ASTUCES 🫵🫵
+</a>
+</h1>
+
+</div>
